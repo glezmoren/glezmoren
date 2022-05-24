@@ -4,6 +4,6 @@ I'm a ✨***Graphic Designer***✨ who, exploring new areas, find a new love �
 
 Go and check out 👉🏽 my *portfolio*
 
-Contact with me 📩 
+Contact me 📩 
 
 
